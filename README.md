@@ -85,7 +85,7 @@ and focused on automation and smart solutions.** 😄
 
 ## 🌐 Connect With Me
 - 📧 Email: rawoofraw001@gmail.com  
-- 💼 LinkedIn: ()
+- 💼 LinkedIn: (https://www.linkedin.com/in/rawoofabdul/)
 
 ---
 
